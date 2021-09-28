@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Anargdumm
+- 👀 I’m interested in space, rocket enginerring and programming
+- 🌱 I’m currently learning Python and japanesse
+- 💞️ I’m looking to collaborate on one of my project make funscional softwer
+- 📫 You can send me if you want to work with me on my project here is my Email adresse !melnicaksimon@gmail.com!
